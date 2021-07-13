@@ -3,13 +3,13 @@ repositório da lição 02
 
 ## Motivação para a vida
 
-Talvez você esteja preocupado(a) demais,
+`Talvez você esteja preocupado(a) demais,
 desanimado com essa ou aquela situação.
 Vivendo sob grande tensão.
 Sem saber por onde ir ou como fazer.
 Pois vou lhe dar alguns motivos para melhorar.
 mesmo sem grandes recursos financeiros,
-mesmo sem médico, sem analista e sem dor.
+mesmo sem médico, sem analista e sem dor.`
 
 01)- Inspire-se!
 
