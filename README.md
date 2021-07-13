@@ -1,5 +1,7 @@
 # texto-markdown
 repositório da lição 02
+Aluno: Luis Fernando dos Santos de Brito
+[Github](
 
 ## Motivação para a vida
 
