@@ -101,7 +101,11 @@ para este ano e os próximos 10 anos.
 
 09)- Movimente-se!
 
-Ficar parado é enferrujar a alma, o corpo e a mente. Saia de casa, caminhe. Troque o elevador e escadas rolantes pelas escadas. Faça algum trabalho braçal, varra o quintal. Mexa-se, pois até as pedras rolam. 10) Cultive a **paz**! A vida já é tão difícil e cheia de problemas, então, não arrume mais. Não se meta na vida dos outros. Não queira fazer por alguém o que ela tem que fazer. Não se meta em foofocas. Não conte seus segredos. Não queira saber de segredos dos outros. Cuide da sua vida comos e fosse um tesouro. Revele apenas o que precisa ser revelado, o resto, deixe no ar.
+Ficar parado é enferrujar a alma, o corpo e a mente. Saia de casa, caminhe. Troque o elevador e escadas rolantes pelas escadas. Faça algum trabalho braçal, varra o quintal. Mexa-se, pois até as pedras rolam. 
+
+10) Cultive a **paz**! 
+
+A _vida_ já é tão difícil e cheia de problemas, então, não arrume mais. Não se meta na vida dos outros. Não queira fazer por alguém o que ela tem que fazer. Não se meta em foofocas. Não conte seus segredos. Não queira saber de segredos dos outros. Cuide da sua vida comos e fosse um _tesouro_. Revele apenas o que precisa ser revelado, o resto, deixe no ar.
 
 ##### lista não ordenada 
 
@@ -114,10 +118,12 @@ Ficar parado é enferrujar a alma, o corpo e a mente. Saia de casa, caminhe. Tro
 * Admita os erros!
 * Tenha sonhos para realizar!
 * Movimente-se!
+* cultive a paz!
 
 ### “A paz, por duras conquistas, fúlguras em ti como uma estrela, no entanto, não desista nunca, de lutar para mantê-la.(J.Da Mata – Estrêla da Paz)
 
-É tempo de cultivar a serenidade na sua vida. Seja aos 15 ou aos 100 anos. Sempre é tempo de olhar para o dia e abençoando-o dizer: - Hoje eu vou ser muito mais feliz
+`É tempo de cultivar a serenidade na sua vida. Seja aos 15 ou aos 100 anos. Sempre é tempo de olhar para o dia e abençoando-o dizer: - Hoje eu vou ser muito mais feliz`
+
 #### Referncia bibiografica
 [refrencia bibiografia]: https://www.pensador.com/textos_motivacao/
 
