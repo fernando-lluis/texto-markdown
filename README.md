@@ -71,7 +71,7 @@ Se você é ateu, acredite no seu poder de realizar. Se tem religião, ou simpat
 
 | remuneração| reconhecimento do trabalho| uma boa comunicação| oportunidade de crescimento proficional|estabilidade no emprego|beneficios sociais|liberdade de decisões|outros|
 |:-:|:-:|:-:|:-:|:-:|:-:|:-:|:-:|
-|20%| 18%|18%|11%|8%|6%|3%|16%
+|20%| 19%|19%|13%|10%|9%|7%|3%
 
 06)- _Respeite-se_!
 
