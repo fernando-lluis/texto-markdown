@@ -105,15 +105,15 @@ Ficar parado é enferrujar a alma, o corpo e a mente. Saia de casa, caminhe. Tro
 
 ##### lista não ordenada 
 
-*Inspire-se!
-*Motive-se!
-*Apaixone-se!
-*Não se compare!
-*Acredite.
-*Respeite-se!
-*Admita os erros!
-*Tenha sonhos para realizar!
-*Movimente-se!
+* Inspire-se!
+* Motive-se!
+* Apaixone-se!
+* Não se compare!
+* Acredite.
+* Respeite-se!
+* Admita os erros!
+* Tenha sonhos para realizar!
+* Movimente-se!
 
 ### “A paz, por duras conquistas, fúlguras em ti como uma estrela, no entanto, não desista nunca, de lutar para mantê-la.(J.Da Mata – Estrêla da Paz)
 
