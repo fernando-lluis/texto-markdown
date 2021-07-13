@@ -54,8 +54,12 @@ A vida naturalmente recompensa o amor com mais _amor_.
 Nem a nada, nem a ninguém. Pegue uma
 
 Biografia e use como inspiração e não como comparação. Você é peça única!
-
+![imagem-google](http://1.bp.blogspot.com/-_KWFC9Tt3nk/VdSBA6gTaAI/AAAAAAAAAiA/kgM-7bXYlIQ/s1600/frases-de-motivacao-profissional-9.jpg)
 5) Acredite. Se você é ateu, acredite no seu poder de realizar. Se tem religião, ou simpatia por uma, acredite no seu **“Deus”**, mas não deixe de criar. Não espere que uma oração vá fazer o que precisa ser feito. A carne em cima da mesa não vai ficar pronta com a sua _fé_, mas ela pode temperar ainda mais o alimento com a determinação. Acreditar é ter o poder de transformar o que parece impossível.
+##### Percepção de Eficácia das Práticas Motivacionais
+
+| remuneração| reconhecimento do trabalho| uma boa comunicação| oportunidade de crescimento proficional|estabilidade no emprego|beneficios sociais|liberdade de decisões|
+|20%---------| 18%-----------------------|18%-----------------|11%-------------------------------------|8%---------------------|6%----------------|3%-------------------|
 
 06)- _Respeite-se_!
 
@@ -84,7 +88,7 @@ não tem a menor graça.
 Por isso, a cada nova conquista, coloque uma nova meta.
 Trace planos para o dia, para a semana, este mês.
 para este ano e os próximos 10 anos.
-
+![imagem-google](https://static.mundodasmensagens.com/upload/textos/v/o/voce-e-forte-capaz-e-merece-vencer-sorrir-amar-e-ser-muito-feliz-79E5P-cxl.jpg)
 09)- Movimente-se!
 
 Ficar parado é enferrujar a alma, o corpo e a mente. Saia de casa, caminhe. Troque o elevador e escadas rolantes pelas escadas. Faça algum trabalho braçal, varra o quintal. Mexa-se, pois até as pedras rolam. 10) Cultive a **paz**! A vida já é tão difícil e cheia de problemas, então, não arrume mais. Não se meta na vida dos outros. Não queira fazer por alguém o que ela tem que fazer. Não se meta em foofocas. Não conte seus segredos. Não queira saber de segredos dos outros. Cuide da sua vida comos e fosse um tesouro. Revele apenas o que precisa ser revelado, o resto, deixe no ar.
@@ -92,3 +96,6 @@ Ficar parado é enferrujar a alma, o corpo e a mente. Saia de casa, caminhe. Tro
 ### “A paz, por duras conquistas, fúlguras em ti como uma estrela, no entanto, não desista nunca, de lutar para mantê-la.(J.Da Mata – Estrêla da Paz)
 
 É tempo de cultivar a serenidade na sua vida. Seja aos 15 ou aos 100 anos. Sempre é tempo de olhar para o dia e abençoando-o dizer: - Hoje eu vou ser muito mais feliz
+#### Referncia bibiografica
+[refrencia bibiografia]: https://www.pensador.com/textos_motivacao/
+
