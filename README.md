@@ -76,7 +76,7 @@ A limpeza por si só já exige respeito, nem precisa de vigia.
 Assim também deve ser a sua apresentação.
 Limpa, serena e a ao mesmo tempo forte e determinada.
 Não apareça com cara de fraqueza, de “coitadinho”.
-Quanto mais coitadinho, mais as pessoas pisam.
+Quanto mais coitadinho, mais as pessoas pisam. 
 
 07)- Admita os erros!
 
