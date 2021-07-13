@@ -58,7 +58,10 @@ Biografia e use como inspiração e não como comparação. Você é peça únic
 ![][imagem-google]
 [imagem-google](http://1.bp.blogspot.com/-_KWFC9Tt3nk/VdSBA6gTaAI/AAAAAAAAAiA/kgM-7bXYlIQ/s1600/frases-de-motivacao-profissional-9.jpg)
 
-5) Acredite. Se você é ateu, acredite no seu poder de realizar. Se tem religião, ou simpatia por uma, acredite no seu **“Deus”**, mas não deixe de criar. Não espere que uma oração vá fazer o que precisa ser feito. A carne em cima da mesa não vai ficar pronta com a sua _fé_, mas ela pode temperar ainda mais o alimento com a determinação. Acreditar é ter o poder de transformar o que parece impossível.
+5) Acredite. 
+
+Se você é ateu, acredite no seu poder de realizar. Se tem religião, ou simpatia por uma, acredite no seu **“Deus”**, mas não deixe de criar. Não espere que uma oração vá fazer o que precisa ser feito. A carne em cima da mesa não vai ficar pronta com a sua _fé_, mas ela pode temperar ainda mais o alimento com a determinação. Acreditar é ter o poder de transformar o que parece impossível.
+
 ##### Percepção de Eficácia das Práticas Motivacionais
 
 | remuneração| reconhecimento do trabalho| uma boa comunicação| oportunidade de crescimento proficional|estabilidade no emprego|beneficios sociais|liberdade de decisões|outros|
@@ -99,6 +102,18 @@ para este ano e os próximos 10 anos.
 09)- Movimente-se!
 
 Ficar parado é enferrujar a alma, o corpo e a mente. Saia de casa, caminhe. Troque o elevador e escadas rolantes pelas escadas. Faça algum trabalho braçal, varra o quintal. Mexa-se, pois até as pedras rolam. 10) Cultive a **paz**! A vida já é tão difícil e cheia de problemas, então, não arrume mais. Não se meta na vida dos outros. Não queira fazer por alguém o que ela tem que fazer. Não se meta em foofocas. Não conte seus segredos. Não queira saber de segredos dos outros. Cuide da sua vida comos e fosse um tesouro. Revele apenas o que precisa ser revelado, o resto, deixe no ar.
+
+##### lista não ordenada 
+
+*Inspire-se!
+*Motive-se!
+*Apaixone-se!
+*Não se compare!
+*Acredite.
+*Respeite-se!
+*Admita os erros!
+*Tenha sonhos para realizar!
+*Movimente-se!
 
 ### “A paz, por duras conquistas, fúlguras em ti como uma estrela, no entanto, não desista nunca, de lutar para mantê-la.(J.Da Mata – Estrêla da Paz)
 
