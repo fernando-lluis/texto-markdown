@@ -3,7 +3,7 @@ repositório da lição 02
 
 ## Motivação para a vida
 
-<Talvez você esteja preocupado(a) demais,
+>Talvez você esteja preocupado(a) demais,
 desanimado com essa ou aquela situação.
 Vivendo sob grande tensão.
 Sem saber por onde ir ou como fazer.
