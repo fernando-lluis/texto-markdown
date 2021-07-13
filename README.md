@@ -130,5 +130,6 @@ A _vida_ já é tão difícil e cheia de problemas, então, não arrume mais. N�
 `É tempo de cultivar a serenidade na sua vida. Seja aos 15 ou aos 100 anos. Sempre é tempo de olhar para o dia e abençoando-o dizer: - Hoje eu vou ser muito mais feliz`
 
 **Referncia bibiografica**
+
 [refrencia bibiografia](https://www.pensador.com/textos_motivacao/)
 
