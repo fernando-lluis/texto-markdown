@@ -59,6 +59,7 @@ Biografia e use como inspiração e não como comparação. Você é peça únic
 ##### Percepção de Eficácia das Práticas Motivacionais
 
 | remuneração| reconhecimento do trabalho| uma boa comunicação| oportunidade de crescimento proficional|estabilidade no emprego|beneficios sociais|liberdade de decisões|
+|:-:|:-:|:-:|:-:|:-:|:-:|:-:|
 |20%---------| 18%-----------------------|18%-----------------|11%-------------------------------------|8%---------------------|6%----------------|3%-------------------|
 
 06)- _Respeite-se_!
