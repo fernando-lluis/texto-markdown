@@ -60,8 +60,7 @@ Nem a nada, nem a ninguém. Pegue uma
 
 Biografia e use como inspiração e não como comparação. Você é peça única!
 
-![][imagem-google]
-[imagem-google](http://1.bp.blogspot.com/-_KWFC9Tt3nk/VdSBA6gTaAI/AAAAAAAAAiA/kgM-7bXYlIQ/s1600/frases-de-motivacao-profissional-9.jpg)
+![imagem-google](http://1.bp.blogspot.com/-_KWFC9Tt3nk/VdSBA6gTaAI/AAAAAAAAAiA/kgM-7bXYlIQ/s1600/frases-de-motivacao-profissional-9.jpg)
 
 5) Acredite. 
 
@@ -101,8 +100,7 @@ Por isso, a cada nova conquista, coloque uma nova meta.
 Trace planos para o dia, para a semana, este mês.
 para este ano e os próximos 10 anos.
 
-![][imagem-google]
-[imagem-google](https://static.mundodasmensagens.com/upload/textos/v/o/voce-e-forte-capaz-e-merece-vencer-sorrir-amar-e-ser-muito-feliz-79E5P-cxl.jpg)
+![imagem-google](https://static.mundodasmensagens.com/upload/textos/v/o/voce-e-forte-capaz-e-merece-vencer-sorrir-amar-e-ser-muito-feliz-79E5P-cxl.jpg)
 
 09)- Movimente-se!
 
@@ -114,16 +112,16 @@ A _vida_ já é tão difícil e cheia de problemas, então, não arrume mais. N�
 
 ##### lista não ordenada 
 
-* Inspire-se!
-* Motive-se!
-* Apaixone-se!
-* Não se compare!
-* Acredite.
-* Respeite-se!
-* Admita os erros!
-* Tenha sonhos para realizar!
-* Movimente-se!
-* cultive a paz!
+1. Inspire-se!
+2. Motive-se!
+3. Apaixone-se!
+4. Não se compare!
+5. Acredite.
+6. Respeite-se!
+7. Admita os erros!
+8. Tenha sonhos para realizar!
+9. Movimente-se!
+10. cultive a paz!
 
 ### “A paz, por duras conquistas, fúlguras em ti como uma estrela, no entanto, não desista nunca, de lutar para mantê-la.(J.Da Mata – Estrêla da Paz)
 
